@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yGmexzEu
+- 👀 I’m interested in E-Commerce
+- 🌱 I’m currently learning Dropshipping
+- 💞️ I’m looking to collaborate on Creating an online store
+- 📫 How to reach me via Dm's
